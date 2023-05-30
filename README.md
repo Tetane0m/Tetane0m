@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Haider sbah
+- 👋 Hi, I’m Haider sabah
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning in universty of information and tecnology in bagdad
 - 💞️ I’m looking to collaborate on ...fulllllll stuuuuuck !!!
