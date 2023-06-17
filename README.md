@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Haider sabah
-- 👀 I’m interested in ...
+- 👀 I’m interested in * from 'life' 
 - 🌱 I’m currently learning in universty of information and tecnology in bagdad
 - 💞️ I’m looking to collaborate on ...fulllllll stuuuuuck !!!
 - 📫 How to reach me ...0770-436-7549
